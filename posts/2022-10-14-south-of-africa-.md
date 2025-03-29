@@ -18,7 +18,7 @@ Mein wohl südlichster Ort meiner Reise ist erreicht. Er heißt Noto und liegt i
 
   
 
-[![](../assets/1665744891610208-0.png)](../assets/1665744891610208-0.png)
+[![](pics/1665744891610208-0.png)](pics/1665744891610208-0.png)
 
   
 
@@ -28,11 +28,11 @@ Die Ocean Viking wird von Ärzte ohne Grenzen zur Seenotrettung im Mittelmeer ei
 
 Kurios ist das Barockdorf Noto und seine Nachbarn. Nach einem verheerenden Erdbeben 1693 baute man die Orte im Stil der Zeit wieder auf. Sehenswert.
 
-[![](../assets/1665728135140685-0.png)](../assets/1665728135140685-0.png)
+[![](pics/1665728135140685-0.png)](pics/1665728135140685-0.png)
 
   
 
-[![](../assets/1665744888266806-1.png)](../assets/1665744888266806-1.png)
+[![](pics/1665744888266806-1.png)](pics/1665744888266806-1.png)
 
   
 

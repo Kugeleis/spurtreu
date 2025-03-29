@@ -14,7 +14,7 @@ description: >
 ##### By G.dot
 _Published on 2022-10-27T20:37:00.003+02:00_
 
-[![](../assets/1666895790881060-0.png)](../assets/1666895790881060-0.png)
+[![](pics/1666895790881060-0.png)](pics/1666895790881060-0.png)
 
   
 
@@ -22,7 +22,7 @@ Sicherlich wusste er nicht was er da ins Rollen brachte. Als Cristoforo Kolombo 
 
   
 
-[![](../assets/1666895605779245-0.png)](../assets/1666895605779245-0.png)
+[![](pics/1666895605779245-0.png)](pics/1666895605779245-0.png)
 
   
 
@@ -32,7 +32,7 @@ Die Stadt zog große Geister an. Rubens malte, Davinci auch. Eine ganze Kolonie 
 
   
 
-[![](../assets/1666895602621831-1.png)](../assets/1666895602621831-1.png)
+[![](pics/1666895602621831-1.png)](pics/1666895602621831-1.png)
 
   
 
@@ -42,7 +42,7 @@ Die Stadt selbst ist sehr sehenswert, aber auch anstrengend wie wohl alle italie
 
   
 
-[![](../assets/1666895598786072-2.png)](../assets/1666895598786072-2.png)
+[![](pics/1666895598786072-2.png)](pics/1666895598786072-2.png)
 
   
 

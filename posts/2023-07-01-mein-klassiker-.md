@@ -5,7 +5,7 @@ title: Mein Klassiker
 date: 2023-07-01T18:03:00.001+02:00
 author: G.dot
 keywords: ÖPNV
-image: https://blogger.googleusercontent.com/img/a/AVvXsEii3Rp6GDu2wDwKIcO1gMBYoqoQ-Nv7QcNDbHw55z_iWO5EeFnEFTrLHZ_I4Mk6sJC_9PrkL3aazWT4Dgeh_y6jBxyR-dWWkK9jTOU9S2GnmwuLZ-cs3pCqYNkTr6hUWObAZ7wRqZe6f4e8gvC4IP9lX8mRINzTlr1IVOiB_TLTzl7mosWYATI84m_ILcw=s72-c
+image: pics/706037109.jpg=s72-c
 images: 
 description: >
   Diese Runde habe ich schon unzählige Male gemacht. Nie gleich, nie langweilig, immer anspruchsvoll. Die Rede ist von der sogenannten hohen Tour. Das ist eine Wander-, Rad- oder Skitour entlang der Grenze zwischen Sachsen und Böhmen zwischen der Elbe und Zinnwald im Erzgebirge. Meine heutige Variante sah den Zug nach
@@ -18,7 +18,7 @@ Diese Runde habe ich schon unzählige Male gemacht. Nie gleich, nie langweilig, 
 
   
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEii3Rp6GDu2wDwKIcO1gMBYoqoQ-Nv7QcNDbHw55z_iWO5EeFnEFTrLHZ_I4Mk6sJC_9PrkL3aazWT4Dgeh_y6jBxyR-dWWkK9jTOU9S2GnmwuLZ-cs3pCqYNkTr6hUWObAZ7wRqZe6f4e8gvC4IP9lX8mRINzTlr1IVOiB_TLTzl7mosWYATI84m_ILcw)](https://blogger.googleusercontent.com/img/a/AVvXsEii3Rp6GDu2wDwKIcO1gMBYoqoQ-Nv7QcNDbHw55z_iWO5EeFnEFTrLHZ_I4Mk6sJC_9PrkL3aazWT4Dgeh_y6jBxyR-dWWkK9jTOU9S2GnmwuLZ-cs3pCqYNkTr6hUWObAZ7wRqZe6f4e8gvC4IP9lX8mRINzTlr1IVOiB_TLTzl7mosWYATI84m_ILcw)
+[![](pics/706037109.jpg)](pics/706037109.jpg)
 
   
 
@@ -30,7 +30,7 @@ Besonders reizvoll ist der Wechsel der Landschaften. Baumlose Höhen, einsame W�
 
   
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgg7h6orfYyAVYVbu-dVIgbutl3oXcqA95fYWMEeZYzLTaGexjKKk9fWWzYmoQ0nBFskyJ_ZtDWAzT8xJgsQp6ITTeoLeESHULHm8g1FOheqBtdkJACj9UqMP3q_iSFBouU7yEz9JJ3m-COZcPMQ8RPUrkGyaS_O4cjzXGb9uTMTgXBBrxTCMFRLzFTCLg)](https://blogger.googleusercontent.com/img/a/AVvXsEgg7h6orfYyAVYVbu-dVIgbutl3oXcqA95fYWMEeZYzLTaGexjKKk9fWWzYmoQ0nBFskyJ_ZtDWAzT8xJgsQp6ITTeoLeESHULHm8g1FOheqBtdkJACj9UqMP3q_iSFBouU7yEz9JJ3m-COZcPMQ8RPUrkGyaS_O4cjzXGb9uTMTgXBBrxTCMFRLzFTCLg)
+[![](pics/339809862.jpg)](pics/339809862.jpg)
 
   
 

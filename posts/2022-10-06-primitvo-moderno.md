@@ -22,15 +22,15 @@ Also nehme ich die Fähre vom albanischen Durrës. Noch einmal Busfragestunde bi
 
 Im ersten "Westzug" seit Wochen zu sitzen, ist wie eine andere Welt. Sauber, modern, schnell und pünktlich trägt mich der italienische _Bummelzug_ durch die Weinfelder Apuliens, deren Frucht mir so lieb ist.
 
-[![](../assets/1664897924474630-0.png)](../assets/1664897924474630-0.png)
+[![](pics/1664897924474630-0.png)](pics/1664897924474630-0.png)
 
 Umsteigezeiten lassen sich hier sehr ortstypisch gestalten.
 
-[![](../assets/1664977598121944-0.png)](../assets/1664977598121944-0.png)
+[![](pics/1664977598121944-0.png)](pics/1664977598121944-0.png)
 
 Mit drei Mal Umsteigen auf die Minute genau erreiche ich mein Ziel am Zeh vom Stiefel Italien. Tropea heißt das Örtchen, scheinbar gemacht aus allen Zutaten für Urlaubskataloge.
 
-[![](../assets/1664980066446673-0.png)](../assets/1664980066446673-0.png)
+[![](pics/1664980066446673-0.png)](pics/1664980066446673-0.png)
 
 Das wissen auch andere Nordeuropäer. Alleine bin ich hier nicht. Aber es geht entspannt zu. Die Parkplätze erzählen, daß hier auch sehr viel mehr los sein kann.
 

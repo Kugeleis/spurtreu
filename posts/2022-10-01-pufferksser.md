@@ -18,13 +18,13 @@ Wer dieses Wort nicht kennt: So nennt man etwas despektierlich Leute mit einer g
 
 Man überquert bei der Fahrt die höchste Eisenbahnbrücke Europas. Hunderte Tunnel und Brücken machen sie zu einem faszinierenden Erlebnis. Bis heute wird die durch zum Großteil menschenleers Karstgebirge führende Strecke täglich von Streckenläufern überwacht. Ein sehr l[esenswerter Wikipedia-Artikel](https://de.wikipedia.org/wiki/Bahnstrecke_Belgrad%25E2%2580%2593Bar?wprov=sfla1) erzählt ausführlich. Heute hat übrigens China die Strecke als Teil ihrer neuen Seidenstraße entdeckt und hilft tatkräftig bei der Sanierung.
 
-[![](../assets/1664452160703894-0.png)](../assets/1664452160703894-0.png)
+[![](pics/1664452160703894-0.png)](pics/1664452160703894-0.png)
 
   
 
-[![](../assets/1664439040383761-0.png)](../assets/1664439040383761-0.png)
+[![](pics/1664439040383761-0.png)](pics/1664439040383761-0.png)
 
-[![](../assets/1664439024451911-1.png)](../assets/1664439024451911-1.png)
+[![](pics/1664439024451911-1.png)](pics/1664439024451911-1.png)
 
 ---
 Categories: Geschichte,Länder,Reise,Technik

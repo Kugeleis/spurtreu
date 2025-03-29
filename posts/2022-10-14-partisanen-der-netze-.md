@@ -22,11 +22,11 @@ Ein Beispiel, das auf meinen Reisen wichtig ist, ist Unterkünfte buchen. Airbnb
 
 Dort zum Beispiel dann ich ein und dasselbe Zimmer mehr als ein Drittel günstig als bei booking.com:
 
-[![](../assets/1665727594873803-0.png)](../assets/1665727594873803-0.png)
+[![](pics/1665727594873803-0.png)](pics/1665727594873803-0.png)
 
   
 
-[![](../assets/1665727591239619-1.png)](../assets/1665727591239619-1.png)
+[![](pics/1665727591239619-1.png)](pics/1665727591239619-1.png)
 
 Offenbar langt also auch der Zimmer-Vermittler aus Holland kräftig zu. Sicherlich gibt es in anderen Ländern auch Alternativen. Leider fand ich aber oft nur lokale Tourismusverbände. Wechselt man häufig den Ort, ist das mühsam.
 

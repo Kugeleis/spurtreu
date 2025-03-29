@@ -18,7 +18,7 @@ Verstörend ist die hier übliche Art, sich seines Abfalls zu entledigen. Selbst
 
   
 
-[![](../assets/1666023681746598-0.png)](../assets/1666023681746598-0.png)
+[![](pics/1666023681746598-0.png)](pics/1666023681746598-0.png)
 
   
 
@@ -30,7 +30,7 @@ Dabei ist gerade Italien voller Ästhetik. Liebevoll gestaltete Häuser, herausg
 
   
 
-[![](../assets/1666105560380814-0.png)](../assets/1666105560380814-0.png)
+[![](pics/1666105560380814-0.png)](pics/1666105560380814-0.png)
 
   
 

@@ -16,7 +16,7 @@ _Published on 2022-09-21T09:23:00.001+02:00_
 
 Bratislava ist schön. Und kaputt. Das Museum erzählt und von ewigem Kampf um das Örtchen zwischen Donau, Puszta und Karpaten. Kelten wohnten hier. Römer, Tartaren, Mongolen, Deutsche, Juden und Slawen, um nur einige zu nennen, kamen, kämpften und verschwanden. Die Stadt, die Burg, das Land brannten unzählige Male und wurden ebenso oft wieder aufgebaut. Und dann kamen die Kommunisten und asphaltierten die Zukunft mitten durch die Altstadt.
 
-[![](../assets/1663602027084680-0.png)](../assets/1663602027084680-0.png)
+[![](pics/1663602027084680-0.png)](pics/1663602027084680-0.png)
 
 Die rissen dafür 1969 die bisher verschonte [Synagoge](https://de.wikipedia.org/wiki/Neologe_Synagoge_%2528Bratislava%2529) und teile der Altstadt ab. Es gab ja keine Gemeinde mehr...
 

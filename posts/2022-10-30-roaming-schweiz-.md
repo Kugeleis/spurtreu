@@ -20,7 +20,7 @@ Schon die Vorfreude auf Schmalspur in den Schweizer Bergen war groß. Die Begeis
 
   
 
-[![](../assets/1667115316262336-0.png)](../assets/1667115316262336-0.png)
+[![](pics/1667115316262336-0.png)](pics/1667115316262336-0.png)
 
   
 
@@ -28,7 +28,7 @@ Man wird ganz trunken von den Aussichten. Ich habe sie aufgesogen. Die Kamera ve
 
   
 
-[![](../assets/1667115313535072-1.png)](../assets/1667115313535072-1.png)
+[![](pics/1667115313535072-1.png)](pics/1667115313535072-1.png)
 
   
 

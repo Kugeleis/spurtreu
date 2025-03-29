@@ -20,7 +20,7 @@ Auch gibt es nicht den Hauch einer Ahnung davon, daß die in den Fluss oder ins 
 
   
 
-[![](../assets/1666708882121804-0.png)](../assets/1666708882121804-0.png)
+[![](pics/1666708882121804-0.png)](pics/1666708882121804-0.png)
 
   
 

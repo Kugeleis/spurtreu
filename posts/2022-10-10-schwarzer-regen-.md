@@ -20,7 +20,7 @@ Heute Nacht kam dann Regen auf und die Aschewolke färbte ihn schwarz.
 
   
 
-[![](../assets/1665406243260692-0.png)](../assets/1665406243260692-0.png)
+[![](pics/1665406243260692-0.png)](pics/1665406243260692-0.png)
 
   
 
@@ -28,7 +28,7 @@ Selbst die Einheimischen sind losgelaufen oder mit dem Boot rausgefahren, um das
 
   
 
-[![](../assets/1665406235722443-1.png)](../assets/1665406235722443-1.png)
+[![](pics/1665406235722443-1.png)](pics/1665406235722443-1.png)
 
   
 

@@ -16,7 +16,7 @@ _Published on 2022-09-19T17:54:00.002+02:00_
 
 Schaut man in Deutschland aus dem Zugfenster, ist meist ein Windrad zu sehen. Im Baltikum haben die Seltenheitswert. Ich habe dort ganze vier Stück gesehen. Eins drehte sich. Auch ein Dach mit Solarmodulen war nirgends in Sicht.
 
-[![](../assets/1663525007668250-0.png)](../assets/1663525007668250-0.png)
+[![](pics/1663525007668250-0.png)](pics/1663525007668250-0.png)
 
 Nur der Mähroboter darf Sonne tanken. Wollte ich mit dem Elektroauto von Deutschland nach Tallinn fahren, bliebe ich wohl liegen oder müsste Tage an Schukosteckdosen verbringen.
 
@@ -26,13 +26,13 @@ Litauen und Estland liegen bei einem [Drittel Deutschlands](https://ourworldinda
 
 Beim Verkehr sieht es ähnlich traurig aus. Dicke Karren sind sehr in. Dabei ist Benzin nicht viel günstiger als in Deutschland. Die Einkommen aber weit weniger als halb so hoch. Züge fahren, wenn überhaupt, nur zwischen den wichtigsten Städten und das auch Recht selten. Die sind dann aber gut gefüllt. 
 
-[![](../assets/1663602872160901-0.png)](../assets/1663602872160901-0.png)
+[![](pics/1663602872160901-0.png)](pics/1663602872160901-0.png)
 
 Der Bahnhof von Tallin ist ein einziger großer Burger King. Verschämt am Rande gibt es einen Fahrkartenschalter mit einer gelangweilt unfreundlichem Dame dahinter.
 
 Grenzüberschreitende Züge gibt es nicht. Zwischen Litauen und Lettland ist man auf Bus angewiesen. Der scheint hier überall das Hauptverkehsmittel für Fernreisen ohne eigenes Auto zu sein. Dabei gab es diese Züge mal.
 
-[![](../assets/1663570638605772-0.png)](../assets/1663570638605772-0.png)
+[![](pics/1663570638605772-0.png)](pics/1663570638605772-0.png)
 
   
 

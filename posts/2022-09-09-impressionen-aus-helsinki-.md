@@ -22,41 +22,41 @@ Die Stadt erscheint als eine Mischung aus nordischer Kühle und zaghafter großs
 
   
 
-[![](../assets/1662706044906403-0.png)](../assets/1662706044906403-0.png)
+[![](pics/1662706044906403-0.png)](pics/1662706044906403-0.png)
 
 Eiszeitliche Granitklippen erlauben wuchtige Monumentalbauten
 
   
 
-[![](../assets/1662706041705498-1.png)](../assets/1662706041705498-1.png)
+[![](pics/1662706041705498-1.png)](pics/1662706041705498-1.png)
 
 Die Russen waren schon da. Alexander II umgibt sich hier mit Allegorien auf Recht, Arbeit, Kunst und Frieden. Letzterer wendet er seit 1894 den A... zu. 
 
   
 
-[![](../assets/1662712282655749-0.png)](../assets/1662712282655749-0.png)
+[![](pics/1662712282655749-0.png)](pics/1662712282655749-0.png)
 
 Orthodoxie wie derbe Moderne überall.
 
   
 
-[![](../assets/1662712279359605-1.png)](../assets/1662712279359605-1.png)
+[![](pics/1662712279359605-1.png)](pics/1662712279359605-1.png)
 
 Nordisch praktische Wohnblocks
 
   
 
-[![](../assets/1662712275790574-2.png)](../assets/1662712275790574-2.png)
+[![](pics/1662712275790574-2.png)](pics/1662712275790574-2.png)
 
 eine Perle: Der Lesesaal der Nationalbibliothek
 
   
 
-[![](../assets/1662712272369242-3.png)](../assets/1662712272369242-3.png)
+[![](pics/1662712272369242-3.png)](pics/1662712272369242-3.png)
 
 Helsinki hatte einen heftigen Flirt mit dem Jugendstil. Man findet viele sehr eigene Zeugen in der Stadt. Die hier bewachen den Hauptbahnhof...  
 
-[![](../assets/1662712268833400-4.png)](../assets/1662712268833400-4.png)
+[![](pics/1662712268833400-4.png)](pics/1662712268833400-4.png)
 
 ... Ein Tempel des Aufbruchs.
 
@@ -64,13 +64,13 @@ Helsinki hatte einen heftigen Flirt mit dem Jugendstil. Man findet viele sehr ei
 
   
 
-[![](../assets/1662712265299797-5.png)](../assets/1662712265299797-5.png)
+[![](pics/1662712265299797-5.png)](pics/1662712265299797-5.png)
 
 Das heute beschert uns ein Örtchen mit exzellenter Übersicht von Hotel Torni.
 
   
 
-[![](../assets/1662712261576148-6.png)](../assets/1662712261576148-6.png)
+[![](pics/1662712261576148-6.png)](pics/1662712261576148-6.png)
 
 übersommernde Eisbrecher
 

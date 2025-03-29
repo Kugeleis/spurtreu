@@ -18,7 +18,7 @@ In Italien erfreut sich eine bisher Zuhause nur von Liefersklaven benutzte Fahrz
 
   
 
-[![](../assets/1665821463868954-0.png)](../assets/1665821463868954-0.png)
+[![](pics/1665821463868954-0.png)](pics/1665821463868954-0.png)
 
   
 

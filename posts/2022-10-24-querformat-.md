@@ -18,7 +18,7 @@ Hier kommt ein Beitrag, der nicht unmittelbar mit meiner Reise zu tun hat. Es be
 
   
 
-[![](../assets/1666529195196855-0.png)](../assets/1666529195196855-0.png)
+[![](pics/1666529195196855-0.png)](pics/1666529195196855-0.png)
 
   
 

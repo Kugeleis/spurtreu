@@ -18,7 +18,7 @@ Es gibt versteckte Perlen, die man selbst nach vielen Jahren erst entdeckt. Eine
 
   
 
-[![Charlotte Joerges "Round square" Sextett](https://blogger.googleusercontent.com/img/a/AVvXsEhgmbudRm9nAIJfTNFibKMtEumgMgdNSK1ccbOrpLgqyhgNEd6dXUQMm7LCULD0gKkH3bCUFl2qYyPYadnb2b2_tKHajPj8mMvBHZh8-eOnnaUw1y50b_vbJhhrBQTpTI3IBJuq_TQQcKz84e0AZZlNY3rkUTPdrtrhMsNM8iDM_gdAFNOFq0bXzcRE=w400-h226 "Charlotte Joerges "Round square" Sextett")](https://blogger.googleusercontent.com/img/a/AVvXsEhgmbudRm9nAIJfTNFibKMtEumgMgdNSK1ccbOrpLgqyhgNEd6dXUQMm7LCULD0gKkH3bCUFl2qYyPYadnb2b2_tKHajPj8mMvBHZh8-eOnnaUw1y50b_vbJhhrBQTpTI3IBJuq_TQQcKz84e0AZZlNY3rkUTPdrtrhMsNM8iDM_gdAFNOFq0bXzcRE)
+[![Charlotte Joerges "Round square" Sextett](pics/2168509343.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEhgmbudRm9nAIJfTNFibKMtEumgMgdNSK1ccbOrpLgqyhgNEd6dXUQMm7LCULD0gKkH3bCUFl2qYyPYadnb2b2_tKHajPj8mMvBHZh8-eOnnaUw1y50b_vbJhhrBQTpTI3IBJuq_TQQcKz84e0AZZlNY3rkUTPdrtrhMsNM8iDM_gdAFNOFq0bXzcRE)
 
   
 
@@ -28,7 +28,7 @@ Der Weg dahin ist eigentlich eine Sache fürs Auto. Der Bus fährt selten und ab
 
   
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEhuowPK98WIk4EkubvrM8bgybEf6jFECO3BFAUDIcvtHrGADE_HsZ4a3OQQClo_PTJnN4V8FMs_caxWasLS7vWGzyTaPWR0j0Zq35tYFfR77r8Bz3MCCrgynHiG5ExR9bcT32TeR0S1FQilM1iQjOp9ljuquWufXR-yzQpSsYR7l2cJmMBr1fw7CNdj)](https://blogger.googleusercontent.com/img/a/AVvXsEhuowPK98WIk4EkubvrM8bgybEf6jFECO3BFAUDIcvtHrGADE_HsZ4a3OQQClo_PTJnN4V8FMs_caxWasLS7vWGzyTaPWR0j0Zq35tYFfR77r8Bz3MCCrgynHiG5ExR9bcT32TeR0S1FQilM1iQjOp9ljuquWufXR-yzQpSsYR7l2cJmMBr1fw7CNdj)
+[![](pics/940148026.jpg)](pics/940148026.jpg)
 
   
 
@@ -36,7 +36,7 @@ Für den Rückweg bietet sich der direkte Weg hinab nach Tharandt an. Allerdings
 
   
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEiqNJqQbWwPStZxhg4aWDJ7CfUC-N_ne12iR9XFYuAmDJf8c2ChONtjX9mtFtxawuHTxMJs7uFBj-UobMjyvNuJhrlposziq79Kd87Qkbo_sxXiJsepvEV5kZHRj7nLxFqOAck0k65eGtRmfOyvzoc0xCaNL3qLisztFYs6JBe8-pzXstXgCrMoaIvL)](https://blogger.googleusercontent.com/img/a/AVvXsEiqNJqQbWwPStZxhg4aWDJ7CfUC-N_ne12iR9XFYuAmDJf8c2ChONtjX9mtFtxawuHTxMJs7uFBj-UobMjyvNuJhrlposziq79Kd87Qkbo_sxXiJsepvEV5kZHRj7nLxFqOAck0k65eGtRmfOyvzoc0xCaNL3qLisztFYs6JBe8-pzXstXgCrMoaIvL)
+[![](pics/11305504.jpg)](pics/11305504.jpg)
 
   
 
@@ -44,7 +44,7 @@ Auf dem rollt es gemütlich hinab nach Freital. Ab da bringt einen die S-Bahn zu
 
   
 
-[![Streckenstart ab Haltestelle 7](https://blogger.googleusercontent.com/img/a/AVvXsEgy4TozUpSBPHt6D7Zf7Dw-qKwSAlxd-jvcCkjzU7MBhyNolNuTtfSlx5V-2pjTYUWQqSxH6wEnvuyjXeBi6L0zMjMOfqlE1PeXuHP5988rT7RrwzMtcAdFk09dK0JJ6m5ZWjSkCac6tDB6IQg7KbGlZmhk-mzoJtKJcJM5bk4ph7mdyxOhLlhVIPjH=w267-h400 "Streckenbeginn")](https://blogger.googleusercontent.com/img/a/AVvXsEgy4TozUpSBPHt6D7Zf7Dw-qKwSAlxd-jvcCkjzU7MBhyNolNuTtfSlx5V-2pjTYUWQqSxH6wEnvuyjXeBi6L0zMjMOfqlE1PeXuHP5988rT7RrwzMtcAdFk09dK0JJ6m5ZWjSkCac6tDB6IQg7KbGlZmhk-mzoJtKJcJM5bk4ph7mdyxOhLlhVIPjH)
+[![Streckenstart ab Haltestelle 7](pics/1856432148.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgy4TozUpSBPHt6D7Zf7Dw-qKwSAlxd-jvcCkjzU7MBhyNolNuTtfSlx5V-2pjTYUWQqSxH6wEnvuyjXeBi6L0zMjMOfqlE1PeXuHP5988rT7RrwzMtcAdFk09dK0JJ6m5ZWjSkCac6tDB6IQg7KbGlZmhk-mzoJtKJcJM5bk4ph7mdyxOhLlhVIPjH)
 
 Steckenstart ab der Haltestelle der Linie 7. gpx-track gibt es auf Anfrage
 

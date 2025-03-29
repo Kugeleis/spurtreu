@@ -18,11 +18,11 @@ Vilnius galt einst als Jerusalem des Nordens. Wichtige Gelehrte des Judentums wi
 
 Sucht man heute nach Zeugnissen dieser Zeit, muss man sehr genau hinschauen. Nicht nur daß die Nazis hier ihre Vernichtung nahezu vollständig umsetzten. Auch das moderne Vilnius versteckt dieses Erbe.
 
-[![](../assets/1663255180411207-0.png)](../assets/1663255180411207-0.png)
+[![](pics/1663255180411207-0.png)](pics/1663255180411207-0.png)
 
 Diesem Hinweisschildchen muss man folgen, um zum [jüdischen Museum](https://www.jmuseum.lt/en/) zu kommen. Dort lernt man auch, daß die litauische Polizei den Deutschen nur allzu gerne geholfen hat. In der Stadt gab es zwei Ghettos. Meine Pension ist in einer der Straßen...
 
-[![](../assets/1663255175658871-1.png)](../assets/1663255175658871-1.png)
+[![](pics/1663255175658871-1.png)](pics/1663255175658871-1.png)
 
 Diese Schleifbock, gemacht aus einem jüdischen Grabstein, wurde bei einem Litauer Beteiligen gefunden. 
 

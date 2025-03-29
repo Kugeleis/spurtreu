@@ -20,7 +20,7 @@ Die Balten waren daher auch am konsequentesten für Sanktionen gegen Russland. D
 
   
 
-[![](../assets/1662820866450678-0.png)](../assets/1662820866450678-0.png)
+[![](pics/1662820866450678-0.png)](pics/1662820866450678-0.png)
 
   
 
@@ -28,17 +28,17 @@ Die russische Botschaft in Tallinn ist mit eindeutigen Zeichen und Worten drapie
 
   
 
-[![](../assets/1662820862490102-1.png)](../assets/1662820862490102-1.png)
+[![](pics/1662820862490102-1.png)](pics/1662820862490102-1.png)
 
-[![](../assets/1662820857474223-2.png)](../assets/1662820857474223-2.png)
+[![](pics/1662820857474223-2.png)](pics/1662820857474223-2.png)
 
 Im ex KGB-Folterkeller in Tallinn kann man sich den fistersten Kapiteln der Nachbarschaft zum großen Bruder nähern.
 
-[![](../assets/1663253147855531-0.png)](../assets/1663253147855531-0.png)
+[![](pics/1663253147855531-0.png)](pics/1663253147855531-0.png)
 
 Wenn die Mitarbeiter der russischen Botschaft in Riga aus dem Fenster schauen, sehen sie ihren Chef ungeschminkt.
 
-[![](../assets/1663253144071075-1.png)](../assets/1663253144071075-1.png)
+[![](pics/1663253144071075-1.png)](pics/1663253144071075-1.png)
 
 Ein Café in Vilnius ist eindeutig.
 

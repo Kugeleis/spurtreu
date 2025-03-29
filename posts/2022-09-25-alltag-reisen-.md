@@ -18,7 +18,7 @@ Drei Wochen bin ich nun schon unterwegs. In zehn Länder habe ich meine Füße g
 
 Die ersten Erinnerungen verschwimmen. Die Vielzahl an Eindrücken will verarbeitet sein. Dabei bemühe ich mich, Reisender zu sein, nicht Tourist. Geschichte, Besonderheiten und Alltag der besuchten Städte und Länder interessieren mich. Die Einsichten können nur oberflächlich sein, im Vergleich aber spannend und durchaus erhellend.
 
-[![Selfie](../assets/1664124477465550-0.png)
+[![Selfie](pics/1664124477465550-0.png)
 
   
 

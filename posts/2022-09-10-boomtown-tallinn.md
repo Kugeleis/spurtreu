@@ -16,15 +16,15 @@ _Published on 2022-09-10T16:22:00.001+02:00_
 
 Die Fähre hat mich flott von Skandinavien ins Baltikum gebracht. Tallinn ist mein erster Hafen. Wenige Schritte vom Ufer entfernt beginnt auch schon das pittoreske mittelalterliche Zentrum.
 
-[![](../assets/1662817898268275-0.png)](../assets/1662817898268275-0.png)
+[![](pics/1662817898268275-0.png)](pics/1662817898268275-0.png)
 
 Es ist so perfekt, dass es vielfach Filmkulisse war. Aber die Stadt zieht offensichtlich auch das jetzt an. 
 
-[![](../assets/1662817894230618-1.png)](../assets/1662817894230618-1.png)
+[![](pics/1662817894230618-1.png)](pics/1662817894230618-1.png)
 
 Und den Erfolg zeigt man.
 
-[![](../assets/1662817889030192-2.png)](../assets/1662817889030192-2.png)
+[![](pics/1662817889030192-2.png)](pics/1662817889030192-2.png)
 
 ---
 Categories: Kultur,Länder

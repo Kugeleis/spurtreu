@@ -20,14 +20,14 @@ Orangen vom Baum pflücken, Guaven naschen - kein Problem. Aber wie nähert man 
 
   
 
-[![](../assets/1666195162912580-0.png)](../assets/1666195162912580-0.png)
+[![](pics/1666195162912580-0.png)](pics/1666195162912580-0.png)
 
   
 Der Feigenkaktus wächst in Süditalien wie Unkraut und lockt mit schönen aber stacheligen Früchten. Auch hier hilft dem ahnungslosen das Netz. Ernten kann man sie bewehrt mit einer die Hand schützenden Plastiktüte. Die Enden abschneiden, mit Gabel festhalten und längs schneiden und schälen. So kommt man an den leckeren Vitamin-C-Schub im Inneren.  
 
   
 
-[![](../assets/1666109456890483-0.png)](../assets/1666109456890483-0.png)
+[![](pics/1666109456890483-0.png)](pics/1666109456890483-0.png)
 
   
 

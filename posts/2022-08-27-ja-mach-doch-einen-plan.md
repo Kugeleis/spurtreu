@@ -14,7 +14,7 @@ description: >
 ##### By G.dot
 _Published on 2022-08-27T11:30:00.000+02:00_
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgSFzwqMepA-GXlpdTh1ooyX3upd3X5x2lNHq5xCnd96VC_66W4rDzD02F5C097EimD3WN40Or2BKRLRzqhFNG226f15sq7DNB-DUSTLLRFT4Iu2qN9aTeg--Dg-RUUDtUC2JsBLHsR4UJWrc5wNqEvtW7cv5EeoFIHkx06umEpJe1LfawJWXsGxoxR=s320)](https://blogger.googleusercontent.com/img/a/AVvXsEgSFzwqMepA-GXlpdTh1ooyX3upd3X5x2lNHq5xCnd96VC_66W4rDzD02F5C097EimD3WN40Or2BKRLRzqhFNG226f15sq7DNB-DUSTLLRFT4Iu2qN9aTeg--Dg-RUUDtUC2JsBLHsR4UJWrc5wNqEvtW7cv5EeoFIHkx06umEpJe1LfawJWXsGxoxR)
+[![](pics/2684438121.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgSFzwqMepA-GXlpdTh1ooyX3upd3X5x2lNHq5xCnd96VC_66W4rDzD02F5C097EimD3WN40Or2BKRLRzqhFNG226f15sq7DNB-DUSTLLRFT4Iu2qN9aTeg--Dg-RUUDtUC2JsBLHsR4UJWrc5wNqEvtW7cv5EeoFIHkx06umEpJe1LfawJWXsGxoxR)
 
 Sei nur ein großes Licht!  
 Und mach dann noch'nen zweiten Plan  

@@ -16,7 +16,7 @@ _Published on 2022-09-17T08:45:00.002+02:00_
 
 Hatten Rīga und Helsinki heftige Flirts mit den Jugendstil, so war es in Kaunas die Moderne, die das Stadtbild Straßen mit prägt.
 
-[![](../assets/1663348910311076-0.png)](../assets/1663348910311076-0.png)
+[![](pics/1663348910311076-0.png)](pics/1663348910311076-0.png)
 
   
 
@@ -28,11 +28,11 @@ Weiteres findet man hier: https://autc.lt/en/architecture-object/?id=881
 
   
 
-[![](../assets/1663348906242236-1.png)](../assets/1663348906242236-1.png)
+[![](pics/1663348906242236-1.png)](pics/1663348906242236-1.png)
 
   
 
-[![](../assets/1663348902257773-2.png)](../assets/1663348902257773-2.png)
+[![](pics/1663348902257773-2.png)](pics/1663348902257773-2.png)
 
 ---
 Categories: Geschichte,Kultur,Länder

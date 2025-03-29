@@ -16,7 +16,7 @@ _Published on 2022-10-10T14:30:00.001+02:00_
 
 Der Dienst blogger.com, den ich für den Blog nutze, stellt ein paar Statistiken zur Nutzung bereit. Wie diese aussieht möchte ich euch nicht vorenthalten.
 
-[](../assets/1665325333723121-0.png)![](../assets/1665325333723121-0.png)[](../assets/1665325333723121-0.png)
+[](pics/1665325333723121-0.png)![](pics/1665325333723121-0.png)[](pics/1665325333723121-0.png)
 
   
 
@@ -26,7 +26,7 @@ Offenbar ist die Häufigkeit der Aufrufe sehr zurückhaltend. Maximal gut 100 Be
 
   
 
-[](../assets/1665325330374802-1.png)![](../assets/1665325330374802-1.png)[](../assets/1665325330374802-1.png)
+[](pics/1665325330374802-1.png)![](pics/1665325330374802-1.png)[](pics/1665325330374802-1.png)
 
   
 
@@ -34,13 +34,13 @@ Hier plaudert euer Endgerät den benutzten Browser aus. Sogar der Saurier Intern
 
   
 
-[](../assets/1665325327088711-2.png)![](../assets/1665325327088711-2.png)[](../assets/1665325327088711-2.png)
+[](pics/1665325327088711-2.png)![](pics/1665325327088711-2.png)[](pics/1665325327088711-2.png)
 
   
 
 Spannen finde ich, aus welchem Ländern Aufrufe kommen. Zwar weiß der Dienst nur die Abfragequelle. Wenn also jemand ein VPN nutzt bleibt der echte Ort geheim, aber eine gewisse Statistik ergibt sich schon. Es dominiert natürlich Deutschland, aber es kommen auch viele andere Teile der Welt vor.
 
-[![](../assets/1665326406166575-0.png)](../assets/1665326406166575-0.png)
+[![](pics/1665326406166575-0.png)](pics/1665326406166575-0.png)
 
 ---
 Categories: sonstiges,Technik

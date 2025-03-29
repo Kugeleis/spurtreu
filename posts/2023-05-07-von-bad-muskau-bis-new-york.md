@@ -5,7 +5,7 @@ title: Von Bad Muskau bis New York
 date: 2023-05-07T14:31:00.004+02:00
 author: G.dot
 keywords: Geschichte,Kultur,Natur
-image: https://blogger.googleusercontent.com/img/a/AVvXsEiGDGrfISuA9yupj7d_EBQUxznGhDCPmN5WW8uxL6UUqmHrmaJM984nbx1-BkjGBKSy-8TcQyKE4Qex1b1_6EvYpkm8l7i6iNY0yOueYINB41KE_xJcnl-lVJ_K-OEbeYRCU6TWlt_UaMu9BXWm72XmzyR7Jo8m3e2JPgOEXsZ9HeENTZQ0ZgUnqqmn=s72-c
+image: pics/3020501286.jpg=s72-c
 images: 
 description: >
   Nein, weder das eine noch das andere war heute das Ziel. Pückler war das Thema und sein Alterswerk Park Branitz.&nbsp;Der war ein Maniker. Für seine Gärten verschuldete er sich bis zur Enteignung. Wenn er nicht Gärten gestaltete, reiste er durch die Welt. Bis in den Sudan. An allem Neuen war
@@ -24,9 +24,9 @@ Auch war er bestens vernetzt. Kluge Köpfe seiner Zeit besuchen ihn auf seinem L
 
   
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEiGDGrfISuA9yupj7d_EBQUxznGhDCPmN5WW8uxL6UUqmHrmaJM984nbx1-BkjGBKSy-8TcQyKE4Qex1b1_6EvYpkm8l7i6iNY0yOueYINB41KE_xJcnl-lVJ_K-OEbeYRCU6TWlt_UaMu9BXWm72XmzyR7Jo8m3e2JPgOEXsZ9HeENTZQ0ZgUnqqmn)](https://blogger.googleusercontent.com/img/a/AVvXsEiGDGrfISuA9yupj7d_EBQUxznGhDCPmN5WW8uxL6UUqmHrmaJM984nbx1-BkjGBKSy-8TcQyKE4Qex1b1_6EvYpkm8l7i6iNY0yOueYINB41KE_xJcnl-lVJ_K-OEbeYRCU6TWlt_UaMu9BXWm72XmzyR7Jo8m3e2JPgOEXsZ9HeENTZQ0ZgUnqqmn)
+[![](pics/3020501286.jpg)](pics/3020501286.jpg)
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEi_ECyzT8P6X82h-w9HPfeOR0yOCxoY3lUAY5G7RtUTTn-TNGV_DD2-1_e0yGU_AFTARfEKHLtayMzODWTDiywyT-z9MKnXT_hH6CqFh0sep7mbKCa6bW2R4ciG4n7Zu0Z1fadZup2_iZpcS8WZonZw5GK5tSvyT4rDscYCj0DWymF3kgQKiZm4cpnV)](https://blogger.googleusercontent.com/img/a/AVvXsEi_ECyzT8P6X82h-w9HPfeOR0yOCxoY3lUAY5G7RtUTTn-TNGV_DD2-1_e0yGU_AFTARfEKHLtayMzODWTDiywyT-z9MKnXT_hH6CqFh0sep7mbKCa6bW2R4ciG4n7Zu0Z1fadZup2_iZpcS8WZonZw5GK5tSvyT4rDscYCj0DWymF3kgQKiZm4cpnV)
+[![](pics/1290908611.jpg)](pics/1290908611.jpg)
 
   
 

@@ -30,7 +30,7 @@ Strukturierte Fassaden und kleinteilige Straßenzüge beschäftigen das Auge. Au
 
   
 
-[![](../assets/1667127934752609-0.png)](../assets/1667127934752609-0.png)
+[![](pics/1667127934752609-0.png)](pics/1667127934752609-0.png)
 
   
 

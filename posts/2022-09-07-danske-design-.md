@@ -14,19 +14,19 @@ description: >
 ##### By G.dot
 _Published on 2022-09-07T16:14:00.001+02:00_
 
-[![](../assets/1662526749323655-0.png)](../assets/1662526749323655-0.png)
+[![](pics/1662526749323655-0.png)](pics/1662526749323655-0.png)
 
 Die Dänen sind offenbar verliebt in tolles Design. Das ist nichts schlechtes. Nur ungewohnt für jemanden, der da aufgewachsen ist, wo selbst die [Neubauten barock sein müssen](https://de.wikipedia.org/wiki/Neumarkt_%2528Dresden%2529?wprov=sfla1) und im Vorort die Baumarkttür der Ästhetik Krone ist.
 
 Hier in Dänemark sind selbst die Masten der Eisenbahn oder öffentliche Mülleimer aus Corten-Stahl.
 
-[![](../assets/1662554277563413-0.png)](../assets/1662554277563413-0.png)
+[![](pics/1662554277563413-0.png)](pics/1662554277563413-0.png)
 
 [Hans Christian Andersen](https://de.wikipedia.org/wiki/Hans_Christian_Andersen) bekam ganz frisch ein beeindruckendes Museum in Odense. Erlebenswert!
 
   
 
-[](../assets/1662554270579031-1.png)![](../assets/1662554270579031-1.png)
+[](pics/1662554270579031-1.png)![](pics/1662554270579031-1.png)
 
 Architektur von Kengo Kuma
 
@@ -36,7 +36,7 @@ Andersen, so lerne ich dort, hat auf ausgedehnten Reisen seine Inspirationen gef
 
 Trotzdem lasse ich Dänemark rasch hinter mir. Durchquere Schweden bis Stockholm, um mich dort nach Helsinki einzuschiffen. 
 
-[![](../assets/1662560073214237-0.png)](../assets/1662560073214237-0.png)
+[![](pics/1662560073214237-0.png)](pics/1662560073214237-0.png)
 
 ---
 Categories: Kultur,Länder,Reise

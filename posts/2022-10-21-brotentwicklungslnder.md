@@ -20,7 +20,7 @@ Erstes ist außerhalb des deutschen Sprachraums nie wirklich über ein gewisses 
 
   
 
-[![](../assets/1666180967573303-0.png)](../assets/1666180967573303-0.png)
+[![](pics/1666180967573303-0.png)](pics/1666180967573303-0.png)
 
   
 

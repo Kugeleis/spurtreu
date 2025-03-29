@@ -22,7 +22,7 @@ Selbst der ahnungsloseste Tourist kann leicht beobachten, wie in den ehemaligen 
 
   
 
-[![](../assets/1667133988267327-0.png)](../assets/1667133988267327-0.png)
+[![](pics/1667133988267327-0.png)](pics/1667133988267327-0.png)
 
   
 

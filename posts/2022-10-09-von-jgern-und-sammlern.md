@@ -60,7 +60,7 @@ Bei meiner Reise durch Europa habe ich leider einen sehr ernüchternden Eindruck
 
 Und was ist mit dem importierten Handy? Ahnlich zum Lieferkettengesetz könnte man die Importeure verpflichten, ein CO2-Budget ihrer Waren anzugeben. Dem kann man dann ein Preisschild umhängen. Ein wünschenswerter Nebeneffekt teurer Energie ist übrigens, daß regionale Produkte und Dienstleistungen relativ günstiger werden. Dann kann vielleicht der Apfel aus Borthen wieder mit dem aus Neuseeland preislich mithalten.
 
-[![](../assets/1665293793107434-0.png)](../assets/1665293793107434-0.png)
+[![](pics/1665293793107434-0.png)](pics/1665293793107434-0.png)
 
 Windräder in Kroatien - ein seltener Anblick
 

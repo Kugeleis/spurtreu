@@ -18,7 +18,7 @@ Der Rückreise nach Norden beginnt. Der Nachtzug, der eingebrochen Ganztageszug 
 
   
 
-[![](../assets/1666369717720416-0.png)](../assets/1666369717720416-0.png)
+[![](pics/1666369717720416-0.png)](pics/1666369717720416-0.png)
 
   
 
@@ -28,7 +28,7 @@ Trotz Ruckeln des Zuges und Schnarchen meines Mitabteilers steige ich ziemlich a
 
   
 
-[![](../assets/1666369712557708-1.png)](../assets/1666369712557708-1.png)
+[![](pics/1666369712557708-1.png)](pics/1666369712557708-1.png)
 
   
 

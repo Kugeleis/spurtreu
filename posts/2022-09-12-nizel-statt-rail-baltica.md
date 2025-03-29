@@ -22,15 +22,15 @@ Deshalb darf ich mir den netten Grenzort Valga zwischen Estland und Lettland vie
 
 Diese Entschleunigung belohnte mich aber mit Eindrücken aus der Provinz und einen exzellenten Riesenschnitzel.
 
-[![](../assets/1662986012701538-0.png)](../assets/1662986012701538-0.png)
+[![](pics/1662986012701538-0.png)](pics/1662986012701538-0.png)
 
 Chruschtschowkas nennt der Volksmund die schnell hochgezogenen Wohnblocks. Der harmonischen Integration in die bestehende Bebauung wurde ähnlich viel Beachtung geschenkt wie in Prohlis oder französischen Skiorten.
 
-[![](../assets/1662985995959901-1.png)](../assets/1662985995959901-1.png)
+[![](pics/1662985995959901-1.png)](pics/1662985995959901-1.png)
 
 Die Parks aber sind 1A gepflegt.
 
-[![](../assets/1662986221857547-0.png)](../assets/1662986221857547-0.png)
+[![](pics/1662986221857547-0.png)](pics/1662986221857547-0.png)
 
 ---
 Categories: Geschichte,Länder,Technik

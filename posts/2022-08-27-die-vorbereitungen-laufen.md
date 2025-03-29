@@ -14,7 +14,7 @@ description: >
 ##### By G.dot
 _Published on 2022-08-27T11:00:00.001+02:00_
 
-[![](../assets/IMG_20220818_094714_599.jpg)](../assets/IMG_20220818_094714_599.jpg)
+[![](pics/IMG_20220818_094714_599.jpg)](pics/IMG_20220818_094714_599.jpg)
 
   
 Was nimmt man mit? Wie viele Kleidungsstücke braucht man? Braucht ich einen Schlafsack?

@@ -18,7 +18,7 @@ Die vielleicht berühmteste Tochter des Landes darf dem Flughafen der Hauptstadt
 
   
 
-[![](../assets/1664639136826756-0.png)](../assets/1664639136826756-0.png)
+[![](pics/1664639136826756-0.png)](pics/1664639136826756-0.png)
 
   
 
@@ -26,7 +26,7 @@ Das Land hat mit die jüngste Bevölkerung in Europa. Die Hauptstadt Tirana ist 
 
   
 
-[![Radweg in Tirana](../assets/1664641343013793-0.png)
+[![Radweg in Tirana](pics/1664641343013793-0.png)
 
   
 
@@ -38,7 +38,7 @@ In der Hauptstadt wird gewaltig gebaut. Bunte Fassaden sind längst nicht mehr d
 
   
 
-[![](../assets/1664733044566671-0.png)](../assets/1664733044566671-0.png)
+[![](pics/1664733044566671-0.png)](pics/1664733044566671-0.png)
 
   
 
@@ -46,7 +46,7 @@ Tradition und Moderne kommen sich hier sehr nahe, wenn die Rufe der Muezzin sich
 
   
 
-[![](../assets/1664733451734572-0.png)](../assets/1664733451734572-0.png)
+[![](pics/1664733451734572-0.png)](pics/1664733451734572-0.png)
 
   
 

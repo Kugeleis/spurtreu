@@ -16,11 +16,11 @@ _Published on 2022-09-18T09:03:00.001+02:00_
 
 Ein schlauer Mathematiker hat eine Formel erfunden, mit der man ein Maß für die Ausgeglichenheit einer Verteilung finden kann. Corrado [Gini](https://de.wikipedia.org/wiki/Gini-Koeffizient) heißt er. Ist der Wert 0, sind alle gleich. Bei 1 gäbe es nur einen Wert größer Null, alle anderen sind Null. Diesen Koeffizienten nimmt man gerne, um die Verteilung von Wohlstand in Gesellschaften zu messen. Schaut man sich zum Beispiel die Einkommen in Europa an, fallen die baltischen Staaten durch Recht hohe Ungleichheit auf. Russland ist ähnlich. Das Gegenteil gilt für Skandinavien (und u.a. Slovenien).
 
-[![](../assets/1663484632259725-0.png)](../assets/1663484632259725-0.png)
+[![](pics/1663484632259725-0.png)](pics/1663484632259725-0.png)
 
 Selten habe ich so viele Luxuswagen wie in Tallinn oder Vilnius. Gleichzeitig stehen Rentner am Straßenrand und versuchen ihre magere Rente etwas aufzubessern.
 
-[![](../assets/1663484629591982-1.png)](../assets/1663484629591982-1.png)
+[![](pics/1663484629591982-1.png)](pics/1663484629591982-1.png)
 
 Da hat offenbar der postsowjetische Raubtierkapitalismus Kraft. 
 
@@ -28,7 +28,7 @@ Am schönsten lernt sich übrigens in Ländern, wo der Wohlstand besonders gleic
 
 Illustrieren kann man das mit dem Gapminder, einer Idee des schwedischen Sozialforschers Hans Rosling:
 
-[![](../assets/1663484626515207-2.png)](../assets/1663484626515207-2.png)
+[![](pics/1663484626515207-2.png)](pics/1663484626515207-2.png)
 
 Links oben sich die Länder mit hoher Lebensqualität und das korreliert mit Gleichheit (zwei Ausreißer: USA dick grün - glücklich aber ungleich; Ukraine: gleich aber nicht super \[gelb\]).
 
