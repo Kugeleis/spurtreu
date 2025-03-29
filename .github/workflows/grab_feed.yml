@@ -17,7 +17,7 @@ jobs:
       - name: Run RSS Feed to Markdown Action
         uses: keiranlovett/rss-feed-to-markdown@main
         with:
-          feed_url: 'https://www.spurtr.eu/feeds/posts/default'
+          feed_url: 'https://www.spurtr.eu/atom.xml?redirect=false&start-index=1&max-results=500'
           template_file: 'assets/template.md'
           output_dir: 'posts/'
 
