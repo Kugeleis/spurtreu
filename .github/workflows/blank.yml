@@ -19,4 +19,4 @@ jobs:
         with:
           feed_url: 'https://www.spurtr.eu/feeds/posts/default'
           template_file: 'assets/template.md'
-          output_dir: '_posts/events/'
+          output_dir: 'posts/'
