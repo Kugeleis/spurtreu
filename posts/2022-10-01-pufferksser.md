@@ -18,13 +18,13 @@ Wer dieses Wort nicht kennt: So nennt man etwas despektierlich Leute mit einer g
 
 Man überquert bei der Fahrt die höchste Eisenbahnbrücke Europas. Hunderte Tunnel und Brücken machen sie zu einem faszinierenden Erlebnis. Bis heute wird die durch zum Großteil menschenleers Karstgebirge führende Strecke täglich von Streckenläufern überwacht. Ein sehr l[esenswerter Wikipedia-Artikel](https://de.wikipedia.org/wiki/Bahnstrecke_Belgrad%25E2%2580%2593Bar?wprov=sfla1) erzählt ausführlich. Heute hat übrigens China die Strecke als Teil ihrer neuen Seidenstraße entdeckt und hilft tatkräftig bei der Sanierung.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTxJelA7-ihXMXBpS8p0POy9i9K7oc6Vak2vMiVx7lfVvEsT_raZzF7fxw4ztjg6v5JJH6Wr8NdAJugSB5F5effB52-elJHA-_pobTTwWB0e7C1UD80S2g4bEUEZNTceXiZMsBmV0cxfY/w640-h360/1664452160703894-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTxJelA7-ihXMXBpS8p0POy9i9K7oc6Vak2vMiVx7lfVvEsT_raZzF7fxw4ztjg6v5JJH6Wr8NdAJugSB5F5effB52-elJHA-_pobTTwWB0e7C1UD80S2g4bEUEZNTceXiZMsBmV0cxfY/s1600/1664452160703894-0.png)
+[![](../assets/1664452160703894-0.png)](../assets/1664452160703894-0.png)
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfPVg4d7yglgnS-UxtQ9I5NbvffUjGRaxBuWOll7XI5zS3VRS4Lgcy5XyMq8AyE6B2pLLTcJog69dSi4fL8xOlSI8D201sP_vjBUUtnvjgoAbnl3VHRRcbAqRo39vlCyo_g0E66K40RFg/w640-h528/1664439040383761-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfPVg4d7yglgnS-UxtQ9I5NbvffUjGRaxBuWOll7XI5zS3VRS4Lgcy5XyMq8AyE6B2pLLTcJog69dSi4fL8xOlSI8D201sP_vjBUUtnvjgoAbnl3VHRRcbAqRo39vlCyo_g0E66K40RFg/s1600/1664439040383761-0.png)
+[![](../assets/1664439040383761-0.png)](../assets/1664439040383761-0.png)
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiZ6snxftBWNPIv3-sAEuZCefNBOCqrT0BBQYR_xzGqigFig9xhJX_visOOB-TdWvt0MgO5QwtzmJpWNeWg4uHcr1_salcGDRvjsKkwt4St5lYuX_Z-t7UgZt_dWdWsbY7HYq8AVxA4s7U/w360-h640/1664439024451911-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiZ6snxftBWNPIv3-sAEuZCefNBOCqrT0BBQYR_xzGqigFig9xhJX_visOOB-TdWvt0MgO5QwtzmJpWNeWg4uHcr1_salcGDRvjsKkwt4St5lYuX_Z-t7UgZt_dWdWsbY7HYq8AVxA4s7U/s1600/1664439024451911-1.png)
+[![](../assets/1664439024451911-1.png)](../assets/1664439024451911-1.png)
 
 ---
 Categories: Geschichte,Länder,Reise,Technik

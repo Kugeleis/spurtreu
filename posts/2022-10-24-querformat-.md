@@ -18,7 +18,7 @@ Hier kommt ein Beitrag, der nicht unmittelbar mit meiner Reise zu tun hat. Es be
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgL_Yjp4k3EM_rx2Ofr0jDTq7ArQdJBFcxL4w6mdoS_1tmrTKfW09-2xWGlpeZ8f99_g5dqi4QVlnV3TvZSPp1DKFh2iYCivtzFOl1Jl0NLDqMlzSCWYIvSP4cLB-dC2t2FRW6dlJqRtiU/s1600/1666529195196855-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgL_Yjp4k3EM_rx2Ofr0jDTq7ArQdJBFcxL4w6mdoS_1tmrTKfW09-2xWGlpeZ8f99_g5dqi4QVlnV3TvZSPp1DKFh2iYCivtzFOl1Jl0NLDqMlzSCWYIvSP4cLB-dC2t2FRW6dlJqRtiU/s1600/1666529195196855-0.png)
+[![](../assets/1666529195196855-0.png)](../assets/1666529195196855-0.png)
 
   
 

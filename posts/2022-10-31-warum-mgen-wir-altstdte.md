@@ -30,7 +30,7 @@ Strukturierte Fassaden und kleinteilige Straßenzüge beschäftigen das Auge. Au
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjuYL4ZNFZVrmISumvwa221RLe5_E6bjT7ekHdxbqdvOJ9SmadWzY9vnJz8PjhWSe-rqEQKW0HkqPlwBbKvj00dZUNHc35jcmajGAoq6uYIvLe01QS78o5ic0q4LDpHP38kfmzjz53Xin0/s1600/1667127934752609-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjuYL4ZNFZVrmISumvwa221RLe5_E6bjT7ekHdxbqdvOJ9SmadWzY9vnJz8PjhWSe-rqEQKW0HkqPlwBbKvj00dZUNHc35jcmajGAoq6uYIvLe01QS78o5ic0q4LDpHP38kfmzjz53Xin0/s1600/1667127934752609-0.png)
+[![](../assets/1667127934752609-0.png)](../assets/1667127934752609-0.png)
 
   
 

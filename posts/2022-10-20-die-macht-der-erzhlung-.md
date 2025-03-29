@@ -18,7 +18,7 @@ Reist man durch die Welt, sind ein Großteil der sehenswerten Gebäude Kirchen u
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBG-7quYlwChFCkKOIRbMIUcJfuZxfW9OvN8RKterQ4Zbo17sfY6WGVbzWF2sXHXAs7ZJr1jJL2NGXZd3c7ad8G775SC63D56nUzuYOLA7OnNYKD8AWZvxrm_eFSMq9N40p19fe8sJDl4/s1600/1666171720581577-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBG-7quYlwChFCkKOIRbMIUcJfuZxfW9OvN8RKterQ4Zbo17sfY6WGVbzWF2sXHXAs7ZJr1jJL2NGXZd3c7ad8G775SC63D56nUzuYOLA7OnNYKD8AWZvxrm_eFSMq9N40p19fe8sJDl4/s1600/1666171720581577-0.png)
+[![](../assets/1666171720581577-0.png)](../assets/1666171720581577-0.png)
 
   
 

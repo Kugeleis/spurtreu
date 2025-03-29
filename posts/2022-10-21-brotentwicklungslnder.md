@@ -20,7 +20,7 @@ Erstes ist außerhalb des deutschen Sprachraums nie wirklich über ein gewisses 
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNNbyF2fIdwjxxrfxwKk7CHbTsHDrc9BWwihr-6xqbJl8Nb4lH5mn3y1sPse1FyThTgCQfUmuthb1aduQZCJwlicClEjfGzorCu28qpjI_5GZbWbsA9MWJx4UGvDwJG5ajjM2tFz6Medg/s1600/1666180967573303-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNNbyF2fIdwjxxrfxwKk7CHbTsHDrc9BWwihr-6xqbJl8Nb4lH5mn3y1sPse1FyThTgCQfUmuthb1aduQZCJwlicClEjfGzorCu28qpjI_5GZbWbsA9MWJx4UGvDwJG5ajjM2tFz6Medg/s1600/1666180967573303-0.png)
+[![](../assets/1666180967573303-0.png)](../assets/1666180967573303-0.png)
 
   
 

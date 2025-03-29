@@ -22,11 +22,11 @@ Ein Beispiel, das auf meinen Reisen wichtig ist, ist Unterkünfte buchen. Airbnb
 
 Dort zum Beispiel dann ich ein und dasselbe Zimmer mehr als ein Drittel günstig als bei booking.com:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheDX96pSVqHM69Q7mrQbOm9OlEiL7VGa0LB_wYKbdoHYxnvPtjzUgkzoIpOSNot4-RTRSTb8oNyyvUQIuOeC4AmqkQURZ4Pf4G8ijIb_A1lHZom2_oP6Z5sssnHcJ8vcio8R6bjNnUpYA/s1600/1665727594873803-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheDX96pSVqHM69Q7mrQbOm9OlEiL7VGa0LB_wYKbdoHYxnvPtjzUgkzoIpOSNot4-RTRSTb8oNyyvUQIuOeC4AmqkQURZ4Pf4G8ijIb_A1lHZom2_oP6Z5sssnHcJ8vcio8R6bjNnUpYA/s1600/1665727594873803-0.png)
+[![](../assets/1665727594873803-0.png)](../assets/1665727594873803-0.png)
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgGEZVKdCmSFjEWVZSt0NCmxlv4RrpOFeE0H3vxYJ69hZr0s2sdTN4tRUtL0L6YSZ9wroTSdGxweEN10ko12nxuZp_OutSYlWNi1fz_RVH7KiINCXhHsB4dupRwJdxbbQHR884kOH3JKUA/s1600/1665727591239619-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgGEZVKdCmSFjEWVZSt0NCmxlv4RrpOFeE0H3vxYJ69hZr0s2sdTN4tRUtL0L6YSZ9wroTSdGxweEN10ko12nxuZp_OutSYlWNi1fz_RVH7KiINCXhHsB4dupRwJdxbbQHR884kOH3JKUA/s1600/1665727591239619-1.png)
+[![](../assets/1665727591239619-1.png)](../assets/1665727591239619-1.png)
 
 Offenbar langt also auch der Zimmer-Vermittler aus Holland kräftig zu. Sicherlich gibt es in anderen Ländern auch Alternativen. Leider fand ich aber oft nur lokale Tourismusverbände. Wechselt man häufig den Ort, ist das mühsam.
 

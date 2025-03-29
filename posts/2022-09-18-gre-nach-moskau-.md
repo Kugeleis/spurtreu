@@ -20,7 +20,7 @@ Die Balten waren daher auch am konsequentesten für Sanktionen gegen Russland. D
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSsixEzDtaoWVtHvriEsVZ3vyUN7hXHMNg-IlnYT-B5MEBD6nvxcsOOl54_AiJN-QoL0P5B-aBfxWbt5yYXOwmmEWfs8-qu4fz5H4LQ7_eKpDMyzS655xryBPgI0vB7IOvqpG-Fm7qvyA/s1600/1662820866450678-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSsixEzDtaoWVtHvriEsVZ3vyUN7hXHMNg-IlnYT-B5MEBD6nvxcsOOl54_AiJN-QoL0P5B-aBfxWbt5yYXOwmmEWfs8-qu4fz5H4LQ7_eKpDMyzS655xryBPgI0vB7IOvqpG-Fm7qvyA/s1600/1662820866450678-0.png)
+[![](../assets/1662820866450678-0.png)](../assets/1662820866450678-0.png)
 
   
 
@@ -28,17 +28,17 @@ Die russische Botschaft in Tallinn ist mit eindeutigen Zeichen und Worten drapie
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihzsYgPnPkNF8gjPXJDP5JfxL-JfhqJWbscPGPu6pYfbaB9hXCdwcA2K-8CI8LtQG97L7OhetksvNHu-NesOCecs8twip2Hv78UoISaSI7IexqwM6GhJvHrjdYGxeV3pCWLiPUSgdI7GY/s1600/1662820862490102-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihzsYgPnPkNF8gjPXJDP5JfxL-JfhqJWbscPGPu6pYfbaB9hXCdwcA2K-8CI8LtQG97L7OhetksvNHu-NesOCecs8twip2Hv78UoISaSI7IexqwM6GhJvHrjdYGxeV3pCWLiPUSgdI7GY/s1600/1662820862490102-1.png)
+[![](../assets/1662820862490102-1.png)](../assets/1662820862490102-1.png)
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgw2v0NWUMcPuU1q0fpBtUXpgfaOa6pr6OjIyp2dLhUxFEqNpvqm5ESfILAmLdyeXY7dwz-JnftKr_qXiklW1R2me2BhCuXTKIlZGfBhkR082cwmo9amjVu_RFzdyFEqbcM-N86lgYs6KU/s1600/1662820857474223-2.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgw2v0NWUMcPuU1q0fpBtUXpgfaOa6pr6OjIyp2dLhUxFEqNpvqm5ESfILAmLdyeXY7dwz-JnftKr_qXiklW1R2me2BhCuXTKIlZGfBhkR082cwmo9amjVu_RFzdyFEqbcM-N86lgYs6KU/s1600/1662820857474223-2.png)
+[![](../assets/1662820857474223-2.png)](../assets/1662820857474223-2.png)
 
 Im ex KGB-Folterkeller in Tallinn kann man sich den fistersten Kapiteln der Nachbarschaft zum großen Bruder nähern.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4TvKms4WmiBXnmD61xVOPXEWcqq1VJ2sRo42K2bpdAI8COjXf_IB02cD61Z7T_yNm4gZKDcEYb8889f2aJECPoVRgF_yxpBEusPUd27Xe0AcyOIL2zBL8YK5BvyOhfRlxiOB7wVCWFqY/s1600/1663253147855531-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4TvKms4WmiBXnmD61xVOPXEWcqq1VJ2sRo42K2bpdAI8COjXf_IB02cD61Z7T_yNm4gZKDcEYb8889f2aJECPoVRgF_yxpBEusPUd27Xe0AcyOIL2zBL8YK5BvyOhfRlxiOB7wVCWFqY/s1600/1663253147855531-0.png)
+[![](../assets/1663253147855531-0.png)](../assets/1663253147855531-0.png)
 
 Wenn die Mitarbeiter der russischen Botschaft in Riga aus dem Fenster schauen, sehen sie ihren Chef ungeschminkt.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihqucWvcq2IQ1HtZK3ofqn64_Lst6PJOm3gpFXmjk3lQiUI3eaVFgjFdtdQPoLtK6M2OieXQ95uTHZUxHH-C7A8UnE0s8OwGnjL6LA7QUTxlHt06Qswy2q8JWHuZiJCklB02uR_VjOkuk/s1600/1663253144071075-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihqucWvcq2IQ1HtZK3ofqn64_Lst6PJOm3gpFXmjk3lQiUI3eaVFgjFdtdQPoLtK6M2OieXQ95uTHZUxHH-C7A8UnE0s8OwGnjL6LA7QUTxlHt06Qswy2q8JWHuZiJCklB02uR_VjOkuk/s1600/1663253144071075-1.png)
+[![](../assets/1663253144071075-1.png)](../assets/1663253144071075-1.png)
 
 Ein Café in Vilnius ist eindeutig.
 

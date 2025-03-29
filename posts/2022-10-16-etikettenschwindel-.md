@@ -18,7 +18,7 @@ In Italien erfreut sich eine bisher Zuhause nur von Liefersklaven benutzte Fahrz
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjey8akwoZwRsf855HjWllS4Xn8JKysrmz7puWtoi4sPkdxX1nCpQ1hfYQc3uWpkmBc-zh2yS9dbpCEFLmXRbRrO0ljB8OerxqnNK-KiApXds02W0pfV9Q44Z9ZohiJtSwBUcdutC7QU-I/s1600/1665821463868954-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjey8akwoZwRsf855HjWllS4Xn8JKysrmz7puWtoi4sPkdxX1nCpQ1hfYQc3uWpkmBc-zh2yS9dbpCEFLmXRbRrO0ljB8OerxqnNK-KiApXds02W0pfV9Q44Z9ZohiJtSwBUcdutC7QU-I/s1600/1665821463868954-0.png)
+[![](../assets/1665821463868954-0.png)](../assets/1665821463868954-0.png)
 
   
 

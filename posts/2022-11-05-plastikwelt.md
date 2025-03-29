@@ -20,7 +20,7 @@ Auch gibt es nicht den Hauch einer Ahnung davon, daß die in den Fluss oder ins 
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-WgduxD3zbOwqcYPIKzVzfSgG1D71BK5kar8e9vqSeeVZd8NFNewiz9UGYNA4cp9j1_FuvkktARBhyIIgA-Pan-BMBrNA1Q38dfAgkKvGWQC_wCw2zbC616HxuHYdCdjawF0X8I3jTMA/s1600/1666708882121804-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-WgduxD3zbOwqcYPIKzVzfSgG1D71BK5kar8e9vqSeeVZd8NFNewiz9UGYNA4cp9j1_FuvkktARBhyIIgA-Pan-BMBrNA1Q38dfAgkKvGWQC_wCw2zbC616HxuHYdCdjawF0X8I3jTMA/s1600/1666708882121804-0.png)
+[![](../assets/1666708882121804-0.png)](../assets/1666708882121804-0.png)
 
   
 

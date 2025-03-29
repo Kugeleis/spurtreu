@@ -18,11 +18,11 @@ Vilnius galt einst als Jerusalem des Nordens. Wichtige Gelehrte des Judentums wi
 
 Sucht man heute nach Zeugnissen dieser Zeit, muss man sehr genau hinschauen. Nicht nur daß die Nazis hier ihre Vernichtung nahezu vollständig umsetzten. Auch das moderne Vilnius versteckt dieses Erbe.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKb0OKxQg1_TVwClCWNZL773ACP2oGN-g2PNAMSThfQoAz1tviuF6ZcybeYoL0NZb506tXAC9-r8VcP455iC1U38cpYl-AwGCLGWS9PfcfaECFhUa4BKxZ3rg2CFgeSzQ_n1KsKIGEKHo/s1600/1663255180411207-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKb0OKxQg1_TVwClCWNZL773ACP2oGN-g2PNAMSThfQoAz1tviuF6ZcybeYoL0NZb506tXAC9-r8VcP455iC1U38cpYl-AwGCLGWS9PfcfaECFhUa4BKxZ3rg2CFgeSzQ_n1KsKIGEKHo/s1600/1663255180411207-0.png)
+[![](../assets/1663255180411207-0.png)](../assets/1663255180411207-0.png)
 
 Diesem Hinweisschildchen muss man folgen, um zum [jüdischen Museum](https://www.jmuseum.lt/en/) zu kommen. Dort lernt man auch, daß die litauische Polizei den Deutschen nur allzu gerne geholfen hat. In der Stadt gab es zwei Ghettos. Meine Pension ist in einer der Straßen...
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3YTdBD3L2aE_fIw8KQUauO-_8tMFWdHpmAqQ3_l7TduHzCpU-CMEjVynUB2BGuZWRvwYlKcalLkmFpDClfbPruiSYX5FRAfWumVDUtYPAlISMp0JITepibqC0JUdwrhj0Gs-YerVkpgw/s1600/1663255175658871-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3YTdBD3L2aE_fIw8KQUauO-_8tMFWdHpmAqQ3_l7TduHzCpU-CMEjVynUB2BGuZWRvwYlKcalLkmFpDClfbPruiSYX5FRAfWumVDUtYPAlISMp0JITepibqC0JUdwrhj0Gs-YerVkpgw/s1600/1663255175658871-1.png)
+[![](../assets/1663255175658871-1.png)](../assets/1663255175658871-1.png)
 
 Diese Schleifbock, gemacht aus einem jüdischen Grabstein, wurde bei einem Litauer Beteiligen gefunden. 
 

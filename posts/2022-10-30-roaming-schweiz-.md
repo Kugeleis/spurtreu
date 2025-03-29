@@ -20,7 +20,7 @@ Schon die Vorfreude auf Schmalspur in den Schweizer Bergen war groß. Die Begeis
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCz3XRR0gVyMtkKWdq5sOvPLjhdifqj0eSvMxla6VvagiwJ2UAA5-QIGDAIBnqlKFuxu7ky_vFgnAQ1mZuzhlcQJy9bg8FTau-0yWhxw_RYRbE7fovvEgHjwi4N9zQCRr8lDp0KtOyl2U/s1600/1667115316262336-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCz3XRR0gVyMtkKWdq5sOvPLjhdifqj0eSvMxla6VvagiwJ2UAA5-QIGDAIBnqlKFuxu7ky_vFgnAQ1mZuzhlcQJy9bg8FTau-0yWhxw_RYRbE7fovvEgHjwi4N9zQCRr8lDp0KtOyl2U/s1600/1667115316262336-0.png)
+[![](../assets/1667115316262336-0.png)](../assets/1667115316262336-0.png)
 
   
 
@@ -28,7 +28,7 @@ Man wird ganz trunken von den Aussichten. Ich habe sie aufgesogen. Die Kamera ve
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNkaIIh7Q2zECY-he-fSimy08XFRj0toOrMPznWTyDqRTQQq23eIye-WBByWFLAQYJPMytuvoaoz2MewMvygNgiPCxxqcWkVYKoIfUzEKlIhit10oGG_IsjqpxZSILLP0JwrBpJMrS29A/s1600/1667115313535072-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNkaIIh7Q2zECY-he-fSimy08XFRj0toOrMPznWTyDqRTQQq23eIye-WBByWFLAQYJPMytuvoaoz2MewMvygNgiPCxxqcWkVYKoIfUzEKlIhit10oGG_IsjqpxZSILLP0JwrBpJMrS29A/s1600/1667115313535072-1.png)
+[![](../assets/1667115313535072-1.png)](../assets/1667115313535072-1.png)
 
   
 

@@ -22,15 +22,15 @@ Deshalb darf ich mir den netten Grenzort Valga zwischen Estland und Lettland vie
 
 Diese Entschleunigung belohnte mich aber mit Eindrücken aus der Provinz und einen exzellenten Riesenschnitzel.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjXzbCPvL7GkQLoQakX7ybZyXZouilJ7EHwRAMsqLnGg-k2vTB8-ZcewcqfwKnRcbewwYy3YoNNVYrgK8frHCnOPQXKBRrfbd3pkML81K9ai9GovhbdfgFQHm-N8abTo-_6d1nJmDq1ZDQ/s1600/1662986012701538-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjXzbCPvL7GkQLoQakX7ybZyXZouilJ7EHwRAMsqLnGg-k2vTB8-ZcewcqfwKnRcbewwYy3YoNNVYrgK8frHCnOPQXKBRrfbd3pkML81K9ai9GovhbdfgFQHm-N8abTo-_6d1nJmDq1ZDQ/s1600/1662986012701538-0.png)
+[![](../assets/1662986012701538-0.png)](../assets/1662986012701538-0.png)
 
 Chruschtschowkas nennt der Volksmund die schnell hochgezogenen Wohnblocks. Der harmonischen Integration in die bestehende Bebauung wurde ähnlich viel Beachtung geschenkt wie in Prohlis oder französischen Skiorten.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyHm6K7ujMVLO5hH-py_8XUExskw33Lho-Blsu7QrVzizDL2ToRybPkfEC5zx45O3Hja2V2fkDZdVpVg3zk1tl7Ngk1iiAyRsDoRNoK8iiSDL_TZojzSJrv1kzDIrXJVtbDkFDmU6R9J4/s1600/1662985995959901-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyHm6K7ujMVLO5hH-py_8XUExskw33Lho-Blsu7QrVzizDL2ToRybPkfEC5zx45O3Hja2V2fkDZdVpVg3zk1tl7Ngk1iiAyRsDoRNoK8iiSDL_TZojzSJrv1kzDIrXJVtbDkFDmU6R9J4/s1600/1662985995959901-1.png)
+[![](../assets/1662985995959901-1.png)](../assets/1662985995959901-1.png)
 
 Die Parks aber sind 1A gepflegt.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEic6o64XRJKUxdEi2oiNlJebDFw0g5Wod_98Eix2aLZ6dVrjXxPPVN3Rl0qrK3M4LeCQb48zgeRJk_rxsgmSU8Pvx8C7mPx4FAWzMZ6RfAi-zmSN_AsN_FL5IU5t5PtFy1su83dilkc8Ts/s1600/1662986221857547-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEic6o64XRJKUxdEi2oiNlJebDFw0g5Wod_98Eix2aLZ6dVrjXxPPVN3Rl0qrK3M4LeCQb48zgeRJk_rxsgmSU8Pvx8C7mPx4FAWzMZ6RfAi-zmSN_AsN_FL5IU5t5PtFy1su83dilkc8Ts/s1600/1662986221857547-0.png)
+[![](../assets/1662986221857547-0.png)](../assets/1662986221857547-0.png)
 
 ---
 Categories: Geschichte,Länder,Technik

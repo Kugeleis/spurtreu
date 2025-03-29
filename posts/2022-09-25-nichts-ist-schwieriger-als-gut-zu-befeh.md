@@ -16,7 +16,7 @@ _Published on 2022-09-25T13:51:00.003+02:00_
 
 So lautet ein Zitat von [Diokletian](https://de.wikipedia.org/wiki/Diokletian), einst römischer Kaiser. Der ließ sich an der Adria einen Palast für den Ruhestand bauen. Daraus ist Split entstanden.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhc-j9rL3dibwnuRwrXO0kbCq7MxIXzUkb3sf_KavEEgXMTMGGeZsVlqVmJtK-rnIx2g7y83z6BxxPRJQjn47Z6LNVsZd4KJ_Lu2GKeomjbTGRneA3Jlihfp5yCZUnT5g5w_ckmnnQdUoQ/s1600/1663930313152592-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhc-j9rL3dibwnuRwrXO0kbCq7MxIXzUkb3sf_KavEEgXMTMGGeZsVlqVmJtK-rnIx2g7y83z6BxxPRJQjn47Z6LNVsZd4KJ_Lu2GKeomjbTGRneA3Jlihfp5yCZUnT5g5w_ckmnnQdUoQ/s1600/1663930313152592-0.png)
+[![](../assets/1663930313152592-0.png)](../assets/1663930313152592-0.png)
 
   
 

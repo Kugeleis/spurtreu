@@ -18,7 +18,7 @@ Mein wohl südlichster Ort meiner Reise ist erreicht. Er heißt Noto und liegt i
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJ5xpEgE-8dJQaoX5JXMicXH2WADgusPG18CN-twlds8XdV_G7VmZklkSqikMPyv90mJlPlWX_cCLAvciI-GY_Z35cbtCh3WhZxXmGfbywpMyHAjmqJb_bXqs2-e-oYJIPK5St9IFTecw/w400-h225/1665744891610208-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJ5xpEgE-8dJQaoX5JXMicXH2WADgusPG18CN-twlds8XdV_G7VmZklkSqikMPyv90mJlPlWX_cCLAvciI-GY_Z35cbtCh3WhZxXmGfbywpMyHAjmqJb_bXqs2-e-oYJIPK5St9IFTecw/s1600/1665744891610208-0.png)
+[![](../assets/1665744891610208-0.png)](../assets/1665744891610208-0.png)
 
   
 
@@ -28,11 +28,11 @@ Die Ocean Viking wird von Ärzte ohne Grenzen zur Seenotrettung im Mittelmeer ei
 
 Kurios ist das Barockdorf Noto und seine Nachbarn. Nach einem verheerenden Erdbeben 1693 baute man die Orte im Stil der Zeit wieder auf. Sehenswert.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6dseGyYNqST5n2OLL4yowm2Pgwbz7CdDgvyOpJsFW2MN1bjuvMgkDMbPwvjhMmso7PNMxFq78dyWWkWtuQkFrZw8dtozkqgV2nFDjyIXQTyOEVcfTI71CyCS0LxoUuizDIDBZEp_Hwhs/w400-h225/1665728135140685-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6dseGyYNqST5n2OLL4yowm2Pgwbz7CdDgvyOpJsFW2MN1bjuvMgkDMbPwvjhMmso7PNMxFq78dyWWkWtuQkFrZw8dtozkqgV2nFDjyIXQTyOEVcfTI71CyCS0LxoUuizDIDBZEp_Hwhs/s1600/1665728135140685-0.png)
+[![](../assets/1665728135140685-0.png)](../assets/1665728135140685-0.png)
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLC1KkqiYPddH7-ZIO_6dNi62inbQljBka2O7X_nR55FzrnXOhp5SqDxXUWA_0_VD-pdcS5mlKoN_D4dky2PJpBu17O46BuJVGmqiDEbPKIY2zXD7XyI1VyZ1zd_cp4qn9OSVcKIeQj2w/s1600/1665744888266806-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLC1KkqiYPddH7-ZIO_6dNi62inbQljBka2O7X_nR55FzrnXOhp5SqDxXUWA_0_VD-pdcS5mlKoN_D4dky2PJpBu17O46BuJVGmqiDEbPKIY2zXD7XyI1VyZ1zd_cp4qn9OSVcKIeQj2w/s1600/1665744888266806-1.png)
+[![](../assets/1665744888266806-1.png)](../assets/1665744888266806-1.png)
 
   
 

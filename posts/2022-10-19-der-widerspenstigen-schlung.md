@@ -20,14 +20,14 @@ Orangen vom Baum pflücken, Guaven naschen - kein Problem. Aber wie nähert man 
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxviNIRIMxg7aqpUBwkjt6SNuspIMdipHsd9244OHTnGEKL3R3MDBMqt5dTFgfxwch3KWqXQN9w09YkOi8an0fs9TEtz37hICQ2QbpSxh92lu1YGA1BZETfkpOUGABKM_p1f2bPffS_Q4/s1600/1666195162912580-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxviNIRIMxg7aqpUBwkjt6SNuspIMdipHsd9244OHTnGEKL3R3MDBMqt5dTFgfxwch3KWqXQN9w09YkOi8an0fs9TEtz37hICQ2QbpSxh92lu1YGA1BZETfkpOUGABKM_p1f2bPffS_Q4/s1600/1666195162912580-0.png)
+[![](../assets/1666195162912580-0.png)](../assets/1666195162912580-0.png)
 
   
 Der Feigenkaktus wächst in Süditalien wie Unkraut und lockt mit schönen aber stacheligen Früchten. Auch hier hilft dem ahnungslosen das Netz. Ernten kann man sie bewehrt mit einer die Hand schützenden Plastiktüte. Die Enden abschneiden, mit Gabel festhalten und längs schneiden und schälen. So kommt man an den leckeren Vitamin-C-Schub im Inneren.  
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjVqEQDCkRPeZvZ9lZ73Y3BlZb7ARhjef1Ay-bdrozeFkLdHte8187VYBk8hvidM_jb_-YJNIIu5175JmyEWpRhRa_Ef-nwzy07rGNR7X5HQNNiF6Rn-KnXV_XGxHI6Pd_Tv0vpkpoZzWw/s1600/1666109456890483-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjVqEQDCkRPeZvZ9lZ73Y3BlZb7ARhjef1Ay-bdrozeFkLdHte8187VYBk8hvidM_jb_-YJNIIu5175JmyEWpRhRa_Ef-nwzy07rGNR7X5HQNNiF6Rn-KnXV_XGxHI6Pd_Tv0vpkpoZzWw/s1600/1666109456890483-0.png)
+[![](../assets/1666109456890483-0.png)](../assets/1666109456890483-0.png)
 
   
 

@@ -14,7 +14,7 @@ description: >
 ##### By G.dot
 _Published on 2022-08-27T11:00:00.001+02:00_
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg457TabBGADVKE6Sj2GqwVLsw9RTChxUhUoCKQiWFISjOcZyGIA3azjEFmEV-mAsWI07P5M3hFeWRXFJAVNMYJtfclq6JAGJmFWLN1-Ufc_HuX1vfwedGtVc3HKE4KldNJdau1Pic28n3Q0DD2XXz7XtVQLxLlffNAsE8AolJZtgZ1m9r2rJeb3cpl/s320/IMG_20220818_094714_599.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg457TabBGADVKE6Sj2GqwVLsw9RTChxUhUoCKQiWFISjOcZyGIA3azjEFmEV-mAsWI07P5M3hFeWRXFJAVNMYJtfclq6JAGJmFWLN1-Ufc_HuX1vfwedGtVc3HKE4KldNJdau1Pic28n3Q0DD2XXz7XtVQLxLlffNAsE8AolJZtgZ1m9r2rJeb3cpl/s1280/IMG_20220818_094714_599.jpg)
+[![](../assets/IMG_20220818_094714_599.jpg)](../assets/IMG_20220818_094714_599.jpg)
 
   
 Was nimmt man mit? Wie viele Kleidungsstücke braucht man? Braucht ich einen Schlafsack?

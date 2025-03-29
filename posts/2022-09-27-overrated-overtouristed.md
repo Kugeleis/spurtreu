@@ -20,7 +20,7 @@ Das steht in keinem Reiseführer, aber es ist mein Eindruck von der Stadt. Eine 
 
 Dabei stammen die meisten Bauten aus einem Wiederaufbau nach einem Erdbeben 1667.   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiGYy6B1iMkQhR7L9wz4VCM0w79-xqkmM8fQIqaNpoGOoiYRA_wbbRxlml0sDKhru7Hd8uWgEml1NPPGJBzhlzFMInH4bht1zXauXUQ6aqBZcePCV5z9A8HunIKmVRZIiu8tTkQ0cNLg0g/s1600/1664108331425414-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiGYy6B1iMkQhR7L9wz4VCM0w79-xqkmM8fQIqaNpoGOoiYRA_wbbRxlml0sDKhru7Hd8uWgEml1NPPGJBzhlzFMInH4bht1zXauXUQ6aqBZcePCV5z9A8HunIKmVRZIiu8tTkQ0cNLg0g/s1600/1664108331425414-0.png)
+[![](../assets/1664108331425414-0.png)](../assets/1664108331425414-0.png)
 
 Das Bemühen nach dem Kroatienkrieg, die Zerstörungen im UNESCO-Weltkulturerbe zu beheben, hat sein übriges getan. Klar, es gibt ein paar tolle Bauten in der einst reichen Handelsstadt, die Lage immerhin ist eins A. 
 
@@ -28,7 +28,7 @@ Das Bemühen nach dem Kroatienkrieg, die Zerstörungen im UNESCO-Weltkulturerbe 
 
 Eine zweite Problemgruppe sind Billigflug-Jugendliche mit fehlender Kinderstube. Chillen am Strand, Party in der Stadt und Kotzen im Park. Dieser Triathlon ist ein Fluch.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9ntDNwGdhTY0ENDm4yu5mj2j7Fd_n_be3eOvturvO_FZFtA6N2_0ZIZ7AGR82sAOHU_XIbTImh-e9xh4HuQSRKMzN8aWzq7GCJMUGXB50nosNhGly743w1iQW5XKoruFPCxVsuwLLzAI/s1600/1664300987069032-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9ntDNwGdhTY0ENDm4yu5mj2j7Fd_n_be3eOvturvO_FZFtA6N2_0ZIZ7AGR82sAOHU_XIbTImh-e9xh4HuQSRKMzN8aWzq7GCJMUGXB50nosNhGly743w1iQW5XKoruFPCxVsuwLLzAI/s1600/1664300987069032-0.png)
+[![](../assets/1664300987069032-0.png)](../assets/1664300987069032-0.png)
 
   
 

@@ -20,7 +20,7 @@ Heute Nacht kam dann Regen auf und die Aschewolke färbte ihn schwarz.
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtO8ydZ-eMbuZsk65-8qPAghdwHVohhitIyyTna-XqD3moZtmvLOqxrufvHgKtLdTp_Da8bF_dk7kuXMGmGGlYxHGrtdmKe-4b-IPKme_DRu03T8GZrB64JIdh8XWX0NysWM8yyzM3R5I/w640-h360/1665406243260692-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtO8ydZ-eMbuZsk65-8qPAghdwHVohhitIyyTna-XqD3moZtmvLOqxrufvHgKtLdTp_Da8bF_dk7kuXMGmGGlYxHGrtdmKe-4b-IPKme_DRu03T8GZrB64JIdh8XWX0NysWM8yyzM3R5I/s1600/1665406243260692-0.png)
+[![](../assets/1665406243260692-0.png)](../assets/1665406243260692-0.png)
 
   
 
@@ -28,7 +28,7 @@ Selbst die Einheimischen sind losgelaufen oder mit dem Boot rausgefahren, um das
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj09bqCyhz5ovcgR6oPZCQu-YooFa8CJbIB6BkWDhPZtx53tMtXmxyK4GMlm8e4COfVwl0bYaPRF75Et6_cKu8fIExxm5lZaxan9n7kKDqKBXvQJrfWVc-H6PFKwAb-Y5Gm1tkoVVCr63E/w640-h360/1665406235722443-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj09bqCyhz5ovcgR6oPZCQu-YooFa8CJbIB6BkWDhPZtx53tMtXmxyK4GMlm8e4COfVwl0bYaPRF75Et6_cKu8fIExxm5lZaxan9n7kKDqKBXvQJrfWVc-H6PFKwAb-Y5Gm1tkoVVCr63E/s1600/1665406235722443-1.png)
+[![](../assets/1665406235722443-1.png)](../assets/1665406235722443-1.png)
 
   
 

@@ -14,7 +14,7 @@ description: >
 ##### By G.dot
 _Published on 2022-10-23T08:36:00.001+02:00_
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghpuipILg0ucsRyLdJ097_qNVAlY0MoRZvtqgs41NBOg7ZLNhCov4zU_LjUhEimCXOcWzE87FGK5dziLtASOovyM2DqfnvKfe5laNO-3I37fXvd6EmIeS6Zs2pExA5z3dhFRWUxPNj_2A/s1600/1666506898380576-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghpuipILg0ucsRyLdJ097_qNVAlY0MoRZvtqgs41NBOg7ZLNhCov4zU_LjUhEimCXOcWzE87FGK5dziLtASOovyM2DqfnvKfe5laNO-3I37fXvd6EmIeS6Zs2pExA5z3dhFRWUxPNj_2A/s1600/1666506898380576-0.png)
+[![](../assets/1666506898380576-0.png)](../assets/1666506898380576-0.png)
 
   
 

@@ -18,7 +18,7 @@ So begrüßte vor Jahren der damalige EU Ratsvorsitzende Jean Claude Juncker den
 
 Daran musste ich denken, als ich einen halben Tag durch Budapest schlenderte. Eine richtige Großstadt. Irgendwie zu groß für das kleine Völkchen der Ungarn. Allein das Parlamentsgebäude lässt Westminster bescheiden wirken.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_z-M4yyGzER3hmyYQysT5At3ij6hkx8H5XNr7mfc3hPwzXYSLa31k33qmDKYEMQVdJ6agOu3iuivFULCajRxUtdUG-xXQlZ9nV0TnVHTJzenbJpwtXdMf7ZFxiKGF39W1lEdgyLEympk/w640-h259/1663789780264059-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_z-M4yyGzER3hmyYQysT5At3ij6hkx8H5XNr7mfc3hPwzXYSLa31k33qmDKYEMQVdJ6agOu3iuivFULCajRxUtdUG-xXQlZ9nV0TnVHTJzenbJpwtXdMf7ZFxiKGF39W1lEdgyLEympk/s1600/1663789780264059-0.png)
+[![](../assets/1663789780264059-0.png)](../assets/1663789780264059-0.png)
 
 Immerhin, dachte ich, weht daran eine ukrainische Fahne. Aber nein, genau besehen (und Google lense befragend) handelt es sich um die Flagge des zu [Rumänien gehörenden Szeklerlands](https://de.wikipedia.org/wiki/Szeklerland). Dort lebt eine ungarische Minderheit.
 

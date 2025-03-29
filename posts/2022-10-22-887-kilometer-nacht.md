@@ -18,7 +18,7 @@ Der Rückreise nach Norden beginnt. Der Nachtzug, der eingebrochen Ganztageszug 
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjEtWsJYysdm2aSnuoe8ZzErMBTK085mlmjZemu0Y8rYVkj7oWFJYrsdIhfFObL4kY779RkikckjfPiNvLPOCiW6Y_qAmUbQR_HjApgiXveD7bbxPP6pqPNrKKnblzLm5g7Gf16WXzVzjQ/s1600/1666369717720416-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjEtWsJYysdm2aSnuoe8ZzErMBTK085mlmjZemu0Y8rYVkj7oWFJYrsdIhfFObL4kY779RkikckjfPiNvLPOCiW6Y_qAmUbQR_HjApgiXveD7bbxPP6pqPNrKKnblzLm5g7Gf16WXzVzjQ/s1600/1666369717720416-0.png)
+[![](../assets/1666369717720416-0.png)](../assets/1666369717720416-0.png)
 
   
 
@@ -28,7 +28,7 @@ Trotz Ruckeln des Zuges und Schnarchen meines Mitabteilers steige ich ziemlich a
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiMQ1zWD8t-8hyphenhyphenxeSYFK0Z1ovndgPxaupL0tPpqsvLkD7N_wLtz17JjJ_eBvDP-to1TtH3BdTLFAZg756VQe9NbGbHdbKQKzn7lVwVWflRi4ztIEcZ73f8C3WCaNpLNxYhwXigTD7YZNg8/s1600/1666369712557708-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiMQ1zWD8t-8hyphenhyphenxeSYFK0Z1ovndgPxaupL0tPpqsvLkD7N_wLtz17JjJ_eBvDP-to1TtH3BdTLFAZg756VQe9NbGbHdbKQKzn7lVwVWflRi4ztIEcZ73f8C3WCaNpLNxYhwXigTD7YZNg8/s1600/1666369712557708-1.png)
+[![](../assets/1666369712557708-1.png)](../assets/1666369712557708-1.png)
 
   
 

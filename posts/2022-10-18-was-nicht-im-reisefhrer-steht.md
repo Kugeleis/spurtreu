@@ -18,7 +18,7 @@ Verstörend ist die hier übliche Art, sich seines Abfalls zu entledigen. Selbst
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhAJc-RG3crtSgVdPDUNizQkWm08LL0BINLwlB8vPoMKnFCvL2rMVpTmisZuLzgXk_JVdNdVoxYJdX7yw8-aGSbzyXhaB3P80_l754-_tyIMufP23fI-8glzkvDjo_EgnTwD41s7O9MQeY/w360-h640/1666023681746598-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhAJc-RG3crtSgVdPDUNizQkWm08LL0BINLwlB8vPoMKnFCvL2rMVpTmisZuLzgXk_JVdNdVoxYJdX7yw8-aGSbzyXhaB3P80_l754-_tyIMufP23fI-8glzkvDjo_EgnTwD41s7O9MQeY/s1600/1666023681746598-0.png)
+[![](../assets/1666023681746598-0.png)](../assets/1666023681746598-0.png)
 
   
 
@@ -30,7 +30,7 @@ Dabei ist gerade Italien voller Ästhetik. Liebevoll gestaltete Häuser, herausg
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgyHu9XmXrt935N__vnt9RZuBlTVRwBub8EaUEHSP2Zbxnaw8JNeEGAyQbVZq5fimDeYvwSwuWnnLS_DJpP6U_MJJDPMHMoAk1GgAa5c2aSsshGaN-gC_UUqAVhTQD6AgO721uAfeTkHEA/w400-h225/1666105560380814-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgyHu9XmXrt935N__vnt9RZuBlTVRwBub8EaUEHSP2Zbxnaw8JNeEGAyQbVZq5fimDeYvwSwuWnnLS_DJpP6U_MJJDPMHMoAk1GgAa5c2aSsshGaN-gC_UUqAVhTQD6AgO721uAfeTkHEA/s1600/1666105560380814-0.png)
+[![](../assets/1666105560380814-0.png)](../assets/1666105560380814-0.png)
 
   
 

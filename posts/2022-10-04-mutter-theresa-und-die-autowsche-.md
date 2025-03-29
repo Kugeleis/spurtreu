@@ -18,7 +18,7 @@ Die vielleicht berühmteste Tochter des Landes darf dem Flughafen der Hauptstadt
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgOAslhVMhdbA80FOhCPcdRZoMOVZhleauoNwJc5W8UXfluF8tQK469kCiPicFqsAsfEDWZM7wRAEpdXQzI8xscP5vAD1oJ_mlEaUtB5ZRgsXavweFCnY7JDoQRcY3i_kZBiAgO4WZw0c/s1600/1664639136826756-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgOAslhVMhdbA80FOhCPcdRZoMOVZhleauoNwJc5W8UXfluF8tQK469kCiPicFqsAsfEDWZM7wRAEpdXQzI8xscP5vAD1oJ_mlEaUtB5ZRgsXavweFCnY7JDoQRcY3i_kZBiAgO4WZw0c/s1600/1664639136826756-0.png)
+[![](../assets/1664639136826756-0.png)](../assets/1664639136826756-0.png)
 
   
 
@@ -26,7 +26,7 @@ Das Land hat mit die jüngste Bevölkerung in Europa. Die Hauptstadt Tirana ist 
 
   
 
-[![Radweg in Tirana](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6LluVrS1hp3O-Inii7-0y2IQuXLeJhLhP5lxwGo4XkqOcvSyPw_8NhKuNFuQQdvQg7x8R-oWplNQqmXqbCB1_6TlqISyv1ZeAmrA4jdEIe-x1wucbo5fiLLL43vBlwFJ5L0ZZMow7CL4/w386-h640/1664641343013793-0.png "Radweg in Tirana")](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6LluVrS1hp3O-Inii7-0y2IQuXLeJhLhP5lxwGo4XkqOcvSyPw_8NhKuNFuQQdvQg7x8R-oWplNQqmXqbCB1_6TlqISyv1ZeAmrA4jdEIe-x1wucbo5fiLLL43vBlwFJ5L0ZZMow7CL4/s1600/1664641343013793-0.png)
+[![Radweg in Tirana](../assets/1664641343013793-0.png)
 
   
 
@@ -38,7 +38,7 @@ In der Hauptstadt wird gewaltig gebaut. Bunte Fassaden sind längst nicht mehr d
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7WUZq3-2jbqrnV_ZXjajkKROKYgIIrs76-vX6vHwqRbWuMREgZIske8brhcPpDZXcPSuj0U0Ggl-sdTLyevEb3DQBMFzrmlCNarA81KgBvV3kWmNkEdv9U29K2FXpeTISHFDdpBE7014/w337-h640/1664733044566671-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7WUZq3-2jbqrnV_ZXjajkKROKYgIIrs76-vX6vHwqRbWuMREgZIske8brhcPpDZXcPSuj0U0Ggl-sdTLyevEb3DQBMFzrmlCNarA81KgBvV3kWmNkEdv9U29K2FXpeTISHFDdpBE7014/s1600/1664733044566671-0.png)
+[![](../assets/1664733044566671-0.png)](../assets/1664733044566671-0.png)
 
   
 
@@ -46,7 +46,7 @@ Tradition und Moderne kommen sich hier sehr nahe, wenn die Rufe der Muezzin sich
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcKCH7Qo2MaQTr30ue0oew2ZfH-DaRBqrb_woyfIkLM5k_4jsWAEscP4dCuzmcnJsO7vOOpAiKly6jb42OG448jD6dfpuqevqDUC1Z9SLvqUqXaermVSsWu9NpQfAdlMXsynkS8nN9j1E/w290-h640/1664733451734572-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcKCH7Qo2MaQTr30ue0oew2ZfH-DaRBqrb_woyfIkLM5k_4jsWAEscP4dCuzmcnJsO7vOOpAiKly6jb42OG448jD6dfpuqevqDUC1Z9SLvqUqXaermVSsWu9NpQfAdlMXsynkS8nN9j1E/s1600/1664733451734572-0.png)
+[![](../assets/1664733451734572-0.png)](../assets/1664733451734572-0.png)
 
   
 

@@ -22,7 +22,7 @@ Selbst der ahnungsloseste Tourist kann leicht beobachten, wie in den ehemaligen 
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg69lHCMAbqKzx49ntOAVJpNs6pqljRYQia2xgGNIlLMBKQXSgryDl1kV0TraRdC7KtRKqWkU465stjIOLDHlW-aSiWMZXvh4mb11PBzypW40BIx7JAlIBxVz40DCMgrpL8xWxxISlt5tg/s1600/1667133988267327-0.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg69lHCMAbqKzx49ntOAVJpNs6pqljRYQia2xgGNIlLMBKQXSgryDl1kV0TraRdC7KtRKqWkU465stjIOLDHlW-aSiWMZXvh4mb11PBzypW40BIx7JAlIBxVz40DCMgrpL8xWxxISlt5tg/s1600/1667133988267327-0.png)
+[![](../assets/1667133988267327-0.png)](../assets/1667133988267327-0.png)
 
   
 
